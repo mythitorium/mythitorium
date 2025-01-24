@@ -1,1 +1,1 @@
-I do dev stuff sometimes and make games some other times.
+Programmed By A Human, Not AI // 100% AI Free
