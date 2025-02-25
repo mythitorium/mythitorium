@@ -1,1 +1,1 @@
-Programmed By A Human, Not By AI
+developed by a human, not by AI
