@@ -1,1 +1,1 @@
-developed by a human, not by AI
+theres nothing here worth looking at fuck you
